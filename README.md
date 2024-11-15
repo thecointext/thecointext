@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on smart contract projects on Solana
 - 📫 How to reach me on x.com/thecointext
 - 😄 Pronouns: un/fazed
-- ⚡ Fun fact: 50-70% of the world's oxygen is produced by the ocean's phytoplankton.
+- ⚡ Fun fact: 50 to 70% of the world's oxygen is produced by the ocean's phytoplankton.
 
 
 <!---
